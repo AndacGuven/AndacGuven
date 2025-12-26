@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AndacGuven
-- 👀 I’m interested in SEO
+- 👀 I’m interested in Marketing & Growth
 - 🌱 I’m currently working with AI
 - 💞️ I’m looking to collaborate on Vibe Code Projects
 - 📫 How to reach me guvenandac@gmail.com
